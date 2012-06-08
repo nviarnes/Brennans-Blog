@@ -4,13 +4,13 @@ date: 2012/05/20
 
 Hi, Ive lived in <a href="http://www.gohawaii.com/">Hawaii</a> all my life, it's pretty excellent! 
 
-<img src="http://imgur.com/lJDSB"></img>
+<img src="http://i.imgur.com/lJDSB"></img>
 
 People walk around in bikinis and swim trunks all the time and go swimming and party.
  
 It's pretty cool to live near the volcanoes too, however one time a friend of mine fell in a volcano and got burned pretty badly....It was a pretty big bummer.
 
-<img src="http://imgur.com/airCy"></img>
+<img src="http://i.imgur.com/airCy"></img>
  
 Our diet consists of lots of fruit and fish because we're on an island near the equator.
 
